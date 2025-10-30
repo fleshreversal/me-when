@@ -1,15 +1,12 @@
 ![IMG_6999](https://github.com/user-attachments/assets/7aa602f0-7f31-4567-af3a-2d0b2472e3b4)
-      You can tell
+      
+ 
+    from the scars on my arms,
 
-                    from the scars on my arms
-
-    and the cracks in my hips
-
-                     and the blisters on my lips . . 
-
-
-      »»-------------¤-------------««
-      ![blinkiesCafe-ZR](https://github.com/user-attachments/assets/5b420eda-c1b9-4c1c-a81a-5e2b8f5b2d74)
+    and the cracks in my hips,
+    
+    and the blisters on my lips.
+- - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
 
    —  he/him pref  ,  she/her is also ok
 
@@ -21,4 +18,6 @@
 
    — FOR PT :: please don’t hesitate to interact! I’ll be a bit dry at first but i’ll be talkative when i get to know more about you! C+h is encouraged even if it’s not in my name!
 
-                          ok bye
+  ok bye
+  
+- - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
