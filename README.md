@@ -6,7 +6,12 @@
     and the cracks in my hips,
     
     and the blisters on my lips.
+
+    
 - - ┈┈∘┈˃̶🎖️˂̶┈∘┈┈ - -
+ 
+    ![blinkiesCafe-ZR](https://github.com/user-attachments/assets/09fdb847-1992-4f30-bc03-559747aee250)
+
 
    —  he/him pref  ,  she/her is also ok
 
