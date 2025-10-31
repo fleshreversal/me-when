@@ -12,6 +12,7 @@
  
     ![blinkiesCafe-ZR](https://github.com/user-attachments/assets/09fdb847-1992-4f30-bc03-559747aee250)
 
+   — hello! call me kraze.
 
    —  he/him pref  ,  she/her is also ok
 
@@ -21,7 +22,11 @@
 
    —  basic dni  ,  18+ iwec
 
-   — FOR PT :: please don’t hesitate to interact! I’ll be a bit dry at first but i’ll be talkative when i get to know more about you! C+h is encouraged even if it’s not in my name!
+          for pt. :
+
+   — i host a fashion roulette and a lab rp!
+
+   — Please don’t hesitate to interact! I’ll be a bit dry at first but i’ll be talkative when i get to know more about you! C+h is encouraged even if it’s not in my name!
 
   ok bye
   
