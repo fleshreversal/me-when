@@ -20,7 +20,7 @@
 
    — i like trife and knifecase and other ships!
 
-   —  basic dni  ,  18+ iwec
+   —  dni if: darkshipper, whatever is problematic... ,  18+ iwec
 
           for pt. :
 
